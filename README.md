@@ -31,3 +31,5 @@ Navržené podmínky….
 Měření podmínek …. 
 
 Přirozená kontrola …. 
+
+3 témata ….. co je potřeba v resortu změnit
